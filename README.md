@@ -1,1 +1,1 @@
-# Cybersecurity-Portfolio
+Hi, I’m Rana!, a beginner in cybersecurity passionate about protecting systems and learning new skills. This portfolio showcases my projects as I grow in the field. Open to entry-level opportunities!# Cybersecurity-Portfolio
